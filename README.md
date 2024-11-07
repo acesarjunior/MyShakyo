@@ -1,0 +1,1 @@
+Introducing MyShakyo, a sanctuary for spiritual seekers. Immerse yourself in Zen meditation and Shakyo practice to uncover the essence of your being. Let the gentle guidance of our zazen timer lead you to inner peace and the realization of your true nature. Embark on a journey of self-discovery and find solace in the depths of your own being with MyShakyo. Gassho!
